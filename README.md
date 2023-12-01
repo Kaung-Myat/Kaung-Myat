@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Kaung Myat Thu
-- 👀 I’m joining internship as Mobile Developer in Brainwave DATA Co.,Ltd
+- 👀 I’m  Mobile Developer in Ray Hub.
